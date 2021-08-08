@@ -8,5 +8,5 @@ never change in this old town
 So far from the stars
 And I want to tell you everything
 The words I never got to say the first time around
-And I remember everything From when we were the children playing in this fairground
+And I remember everything from when we were the children playing in this fairground
 
